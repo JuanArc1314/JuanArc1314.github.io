@@ -84,5 +84,3 @@ I adapt quickly to team environments, enjoy solving problems, and strive to make
 📧 [arcosjuan123b@gmail.com](mailto:arcosjuan123b@gmail.com)
 
 ---
-
-✨ *"Always learning, always improving"*
